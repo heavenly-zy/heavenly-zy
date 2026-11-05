@@ -1,1 +1,1 @@
-### Hi, I'm [ClariS]([https://silkyheart.moe](https://blog.adashima.moe))!
+### Hi, I'm [ClariS](https://blog.adashima.moe)!
